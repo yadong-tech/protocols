@@ -1,6 +1,6 @@
 ## 论坛用户准则
   
-
+![](https://tva1.sinaimg.cn/large/008i3skNly1gtggf37xdjj60rq0933yz02.jpg)
 ### 总则
 * 第1条 36社区论坛是以交流为主的网络社区。
 
